@@ -1,2 +1,2 @@
 # sai
-bhanu is a good boy
+bhanu is gay
